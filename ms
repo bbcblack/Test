@@ -1,1 +1,5 @@
-aakhir is marz ki dawaa kya hai 
+aakhir is marz ki dawaa kya hai
+
+hume unse hai wafaa ki ummeed 
+
+jinhe maalum hi nahi wafaa kya hai  
